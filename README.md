@@ -1,7 +1,9 @@
 ### [Alma de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-Lapacho Solito en el monte Donde el día esconde
-Lumbre de la tierra
+Lapacho 
+No Solito en el monte 
+No Donde el día esconde
+No Lumbre de la tierra
 Ceniza de sol.
 
 Lapacho
