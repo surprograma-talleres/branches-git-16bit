@@ -8,6 +8,11 @@ Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
 
+Solito en el monte 
+Donde el día esconde
+Lumbre de la tierra
+Ceniza de sol.
+
 Lapacho
 También en mi alma
 La vida
